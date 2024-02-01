@@ -1,0 +1,1 @@
+I am a volunteer at a space research visitor center that has many school children visiting to learn about space and science. I want to give some basic information for middle-schoolers about comets. Please provide a basic information sheet.

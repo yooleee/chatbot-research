@@ -1,0 +1,57 @@
+Of course! Here's a basic information sheet about comets suitable for middle-schoolers:
+
+---
+
+# Comets: Mysterious Visitors from Space
+
+![Comet](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1d/Hale-Bopp.jpg/300px-Hale-Bopp.jpg)
+
+## What Are Comets?
+
+Comets are fascinating celestial objects that travel through space. They are often referred to as "dirty snowballs" or "icy dirtballs" because they are composed of a mixture of ice, dust, and rock.
+
+## Where Do Comets Come From?
+
+Comets mainly come from two regions in space:
+
+1. **Oort Cloud:** This is a distant, spherical cloud of icy objects that surrounds our solar system. Comets from the Oort Cloud can take thousands or even millions of years to reach the inner solar system.
+
+2. **Kuiper Belt:** This is another region beyond the orbit of Neptune that contains icy bodies, including comets. Some comets originate from the Kuiper Belt and have shorter orbits.
+
+## The Parts of a Comet
+
+![Comet Anatomy](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/Comet_diagram.png/400px-Comet_diagram.png)
+
+Comets have three main parts:
+
+1. **Nucleus:** This is the solid core of the comet, made up of ice and rock. It can be several kilometers in size.
+
+2. **Coma:** As a comet approaches the Sun, heat causes the nucleus to release gas and dust. This forms a glowing cloud around the nucleus called the coma.
+
+3. **Tail:** The solar wind and radiation from the Sun push the gas and dust away from the nucleus, creating a bright tail that always points away from the Sun. The tail can be visible from Earth and can stretch for millions of kilometers.
+
+## Famous Comets
+
+- **Halley's Comet:** One of the most famous comets, it returns to the inner solar system roughly every 76 years.
+
+- **Hale-Bopp:** This comet was exceptionally bright and visible from Earth in 1997.
+
+- **Comet NEOWISE:** Discovered in 2020, this comet put on a beautiful display in the night sky.
+
+## Why Study Comets?
+
+Scientists study comets to learn more about the early solar system and the building blocks of planets. Comets may contain clues about the origins of water and organic molecules on Earth.
+
+## Viewing Comets
+
+You can sometimes see comets with the naked eye, especially during their closest approach to the Sun. Keep an eye on astronomy websites and news to learn about upcoming comet sightings.
+
+## Fun Fact
+
+Comets are often named after their discoverers, making them a part of scientific history.
+
+Comets are mysterious and captivating objects in the night sky. Exploring their origins and behaviors can teach us a lot about the vast universe beyond our planet.
+
+---
+
+Feel free to use this information sheet to educate middle-schoolers about comets at your space research visitor center. If you have any more questions or need additional information, please let me know!
